@@ -1,0 +1,1 @@
+"Setelah sampai di seberang, mereka mendapati buah-buahan Rusa masih ada di tepi sungai. Namun, Kancil mengingatkan, "Kita perlu berhati-hati, Rusa, karena di kebun ini biasanya ada jebakan petani." Dengan cermat, mereka mengambil buah-buahan yang berserakan tanpa terkena jebakan." 

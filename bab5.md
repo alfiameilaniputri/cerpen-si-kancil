@@ -1,0 +1,1 @@
+"Di kebun, mereka bertemu Kura-kura yang kebetulan sedang mencari makan. Kura-kura yang bijaksana berkata, "Kancil, kecerdikanmu menipu buaya sungguh mengesankan! Jika kau butuh bantuan, aku selalu siap membantu." Mereka bertiga pun menikmati hasil pencarian mereka sambil mengobrol santai." 

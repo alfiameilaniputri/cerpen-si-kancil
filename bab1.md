@@ -1,0 +1,1 @@
+"Pada pagi yang cerah, Si Kancil, hewan yang terkenal cerdik dan suka berpetualang, sedang berjalan santai di hutan. Tiba-tiba, ia bertemu dengan Rusa yang tampak bingung. Karena penasaran, Kancil pun menghampirinya dan bertanya, "Ada apa, Rusa?"" 

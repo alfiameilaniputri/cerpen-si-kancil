@@ -1,0 +1,1 @@
+"Rusa pun mulai bercerita. "Aku baru saja mengumpulkan *buah-buahan* untuk keluargaku, tetapi saat aku dikejar oleh Harimau, buah-buahan itu terjatuh ke sungai. Aku tidak bisa menyeberang untuk mengambilnya karena sungainya cukup lebar dan arusnya deras," kata Rusa dengan nada cemas. Si Kancil, yang terkenal cerdik, tersenyum sambil memikirkan sebuah ide." 
